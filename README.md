@@ -78,7 +78,7 @@ Got your Nepeto discount code ready? Follow these simple steps to apply it:
 
 Boom! You've just scored an awesome discount on your Nepeto subscription.
 
-[![Nepeto Discount Coupon 4](https://res.cloudinary.com/drzqec0oi/image/upload/v1747119536/Nepeto_Discount_Coupon_4_lnzftq.jpg)](https://nepeto.com/?a=aliakbar)
+[![Nepeto Discount Coupon 6](https://res.cloudinary.com/drzqec0oi/image/upload/v1747120661/Nepeto_Discount_Coupon_6_nc64du.png)](https://nepeto.com/?a=aliakbar)
 
 ---
 
