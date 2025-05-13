@@ -78,6 +78,8 @@ Got your Nepeto discount code ready? Follow these simple steps to apply it:
 
 Boom! You've just scored an awesome discount on your Nepeto subscription.
 
+[![Nepeto Discount Coupon 4](https://res.cloudinary.com/drzqec0oi/image/upload/v1747119536/Nepeto_Discount_Coupon_4_lnzftq.jpg)](https://nepeto.com/?a=aliakbar)
+
 ---
 
 ## **Nepeto Pricing Plans (Before Coupon Discounts)**
@@ -96,6 +98,8 @@ All Nepeto plans include access to their core product sourcing features, includi
 - Access to unique distributors  
 - Wholesale supplier connections  
 - Tools to find products not yet on Amazon  
+
+[![Nepeto Discount Coupon 5](https://res.cloudinary.com/drzqec0oi/image/upload/v1747119803/Nepeto_Discount_Coupon_5_p99i5w.jpg)](https://nepeto.com/?a=aliakbar)
 
 ---
 
