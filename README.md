@@ -163,3 +163,5 @@ Don't wait too long—these Nepeto promo codes could expire at any time! Click t
 Remember, smart Amazon sellers don't just look for profitable products—they also hunt for smart ways to cut their business costs. By using these Nepeto coupon codes, you're already showing the savvy mindset that leads to Amazon FBA success!
 
 **Have you used Nepeto before? Which coupon code worked best for you? Drop a comment below and let me know your experience with this powerful product sourcing tool!**
+
+[![Nepeto - Get 50% OFF Today](https://res.cloudinary.com/drzqec0oi/image/upload/v1747121109/Nepeto_-_Get_50_OFF_Today_gehhdl.png)](https://nepeto.com/?a=aliakbar)
