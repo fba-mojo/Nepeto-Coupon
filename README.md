@@ -17,7 +17,7 @@ Let's kick things off with the juiciest Nepeto coupon codes you can use right no
 
 Ready to slash your product sourcing costs while boosting your Amazon profits? Let's dive into all the ways you can save big with Nepeto!
 
-[Nepeto - Try It Here](https://nepeto.com/?a=aliakbar)
+[![Nepeto - Try It Here](https://res.cloudinary.com/drzqec0oi/image/upload/v1747120928/Nepeto_-_Try_It_Here_rttdfa.png)](https://nepeto.com/?a=aliakbar)
 
 ---
 
